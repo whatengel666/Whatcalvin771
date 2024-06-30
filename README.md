@@ -29,6 +29,8 @@ src="http://dl.glitter-graphics.net/pub/695/695091w7zqwwdn9n.gif" /></p>
 <img
 src="http://dl5.glitter-graphics.net/pub/820/820095yoeyni3ype.gif" /></p>
 <img
+src="https://adriansblinkiecollection.neocities.org/b28.gif" /></p>
+<img
 src="http://dl3.glitter-graphics.net/pub/862/862823aiyn9xdpp9.gif" /></p>
 <img
 src="http://dl4.glitter-graphics.net/pub/450/450294krqs1zdmyt.gif" /></p>
