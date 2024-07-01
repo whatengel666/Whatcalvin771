@@ -1,3 +1,5 @@
+<img
+src="https://media.tenor.com/cs7Z40PBEHgAAAAM/divider.gif" /></p>
 🎀カルビンと呼んでください ^_^!
 
 🔪私は自殺するのが大好きです ( ꩜ ᯅ ꩜;)
@@ -13,32 +15,24 @@
 🥩𝑀𝑦 𝑓𝑎𝑣 𝑠𝑜𝑛𝑔 𝑖𝑠 𝑌𝑎𝑏𝑢𝑗𝑖𝑛:D! 𝐼𝑚 𝑎𝑙𝑤𝑎𝑦𝑠 𝑙𝑖𝑠𝑡𝑒𝑛𝑖𝑛𝑔 𝑡𝑜 𝑌𝑎𝑏𝑢𝑗𝑖𝑛 𝑒𝑣𝑒𝑟𝑦𝑑𝑎𝑦 𝑤ℎ𝑒𝑛 𝐼 𝑤𝑎𝑠 𝑏𝑜𝑟𝑒𝑑/𝑠𝑎𝑑 𝑎𝑛𝑑 𝑢𝑝𝑠𝑒𝑡(｡>_<｡)
 
 💤 𝐷𝑛𝑖:(𝐿𝑜𝑎𝑑𝑖𝑛𝑔...)
-
 <img
-src="https://adriansblinkiecollection.neocities.org/e12.gif" /></p>
-<img
+src="https://media.tenor.com/cs7Z40PBEHgAAAAM/divider.gif" /></p><img
+src="https://adriansblinkiecollection.neocities.org/e12.gif" /></p><img
 src="http://dl3.glitter-graphics.net/pub/45/45583ymrwb5grfo.gif" /></p>
 <img
-src="http://dl6.glitter-graphics.net/pub/976/976336iiof8g9a9g.gif" /></p>
-<img
-src="http://dl8.glitter-graphics.net/pub/148/148978sykl5tijjt.gif" /></p>
-<img
-src="http://dl9.glitter-graphics.net/pub/516/516639mqs4ppq82l.gif" /></p>
-<img
-src="http://dl5.glitter-graphics.net/pub/675/675125pwwt7fof2r.gif" /></p>
-<img
-src="http://dl.glitter-graphics.net/pub/695/695091w7zqwwdn9n.gif" /></p>
-<img
-src="http://dl5.glitter-graphics.net/pub/820/820095yoeyni3ype.gif" /></p>
-<img
-src="https://adriansblinkiecollection.neocities.org/b28.gif" /></p>
-<img
+src="http://dl6.glitter-graphics.net/pub/976/976336iiof8g9a9g.gif" /></p><img
+src="http://dl8.glitter-graphics.net/pub/148/148978sykl5tijjt.gif" /></p><img
+src="http://dl9.glitter-graphics.net/pub/516/516639mqs4ppq82l.gif" /></p><img
+src="http://dl5.glitter-graphics.net/pub/675/675125pwwt7fof2r.gif" /></p><img
+src="http://dl.glitter-graphics.net/pub/695/695091w7zqwwdn9n.gif" /></p><img
+src="http://dl5.glitter-graphics.net/pub/820/820095yoeyni3ype.gif" /></p><img
+src="https://adriansblinkiecollection.neocities.org/b28.gif" /></p><img
 src="http://dl3.glitter-graphics.net/pub/862/862823aiyn9xdpp9.gif" /></p>
 <img
-src="http://dl4.glitter-graphics.net/pub/450/450294krqs1zdmyt.gif" /></p>
-<img
-src="http://dl3.glitter-graphics.net/pub/180/180793o6w0geqbip.gif" /></p>
-<img
+src="http://dl4.glitter-graphics.net/pub/450/450294krqs1zdmyt.gif" /></p><img
+src="http://dl3.glitter-graphics.net/pub/180/180793o6w0geqbip.gif" /></p><img
+src="https://adriansblinkiecollection.neocities.org/stamps/a40.jpg" /></p><img
+src="https://adriansblinkiecollection.neocities.org/stamps/d40.jpg" /></p><img
 src="http://dl2.glitter-graphics.net/pub/910/910942fgljh9uppc.gif" /></p>
 <img src="https://i.pinimg.com/originals/5e/e0/63/5ee063619963820ad585a35a41e8c5f1.jpg"
 /></p>
