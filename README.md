@@ -15,6 +15,8 @@
 💤 𝐷𝑛𝑖:(𝐿𝑜𝑎𝑑𝑖𝑛𝑔...)
 
 <img
+src="https://adriansblinkiecollection.neocities.org/e12.gif" /></p>
+<img
 src="http://dl3.glitter-graphics.net/pub/45/45583ymrwb5grfo.gif" /></p>
 <img
 src="http://dl6.glitter-graphics.net/pub/976/976336iiof8g9a9g.gif" /></p>
