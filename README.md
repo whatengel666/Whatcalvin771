@@ -67,7 +67,7 @@ SRC="http://dl5.glitter-graphics.net/pub/1853/1853515ivmvg6py7t.gif" /></p>
 <img
 src="http://dl2.glitter-graphics.net/pub/252/252682in41fsxg03.gif" /></p>
 <img
-src="https://media.tenor.com/cs7Z40PBEHgAAAAM/divider.gif"/></p><img
+src="http://dl6.glitter-graphics.net/pub/2496/2496756zadxqueczl.gif"/></p><img
 src="https://adriansblinkiecollection.neocities.org/e12.gif" /></p><img
 src="http://dl3.glitter-graphics.net/pub/45/45583ymrwb5grfo.gif" /></p>
 <img
