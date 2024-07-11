@@ -62,6 +62,8 @@ SRC="http://dl5.glitter-graphics.net/pub/1853/1853515ivmvg6py7t.gif" /></p>
 𝐷𝑁𝐼.5: + . 𝐶𝑎𝑙𝑣𝑖𝑛 (𝑏𝑒𝑐𝑎𝑢𝑠𝑒 ℎ𝑒'𝑠 𝑎 𝑚𝑖𝑛𝑜𝑟 𝑎𝑛𝑑 ℎ𝑒'𝑠 𝑑𝑟𝑎𝑤𝑖𝑛𝑔 𝑁𝑆𝐹𝑊 𝑡𝑜𝑜.) . +
 
 <img
+src="http://dl2.glitter-graphics.net/pub/252/252682in41fsxg03.gif" /></p>
+<img
 src="https://media.tenor.com/cs7Z40PBEHgAAAAM/divider.gif"/></p><img
 src="https://adriansblinkiecollection.neocities.org/e12.gif" /></p><img
 src="http://dl3.glitter-graphics.net/pub/45/45583ymrwb5grfo.gif" /></p>
