@@ -25,7 +25,7 @@ SRC="http://dl2.glitter-graphics.net/pub/677/677092ykivovsu3o.gif" /></p>
 
 <img
 SRC="http://dl.glitter-graphics.net/pub/1639/1639651ak9smf69n0.gif" /></p>
-🩸𝐹𝑎𝑛𝑑𝑜𝑚: 𝑆𝑜𝑢𝑡ℎ𝑃𝑎𝑟𝑘,  𝑅𝑜𝑏𝑙𝑜𝑥,  𝑂𝑏𝑗𝑒𝑐𝑡 𝑆ℎ𝑜𝑤𝑠 𝑎𝑛𝑑 𝑓𝑛𝑓 x3
+🩸𝐹𝑎𝑛𝑑𝑜𝑚: 𝑆𝑜𝑢𝑡ℎ𝑃𝑎𝑟𝑘,  𝑅𝑜𝑏𝑙𝑜𝑥,  𝑂𝑏𝑗𝑒𝑐𝑡 𝑆ℎ𝑜𝑤𝑠, 𝑓𝑛𝑓 𝑎𝑛𝑑 𝐷𝑎𝑛𝑔𝑎𝑛𝑟𝑜𝑛𝑝𝑎 x3
 
 <img
 SRC="http://dl.glitter-graphics.net/pub/974/974611gaslp2bg2j.gif" /></p>
