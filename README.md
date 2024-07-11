@@ -24,6 +24,8 @@ SRC="http://dl3.glitter-graphics.net/pub/672/672663fcmohh86is.gif" /></p>
 SRC="http://dl.glitter-graphics.net/pub/1639/1639651ak9smf69n0.gif" /></p>
 🩸𝐹𝑎𝑛𝑑𝑜𝑚: 𝑆𝑜𝑢𝑡ℎ𝑃𝑎𝑟𝑘,  𝑅𝑜𝑏𝑙𝑜𝑥,  𝑂𝑏𝑗𝑒𝑐𝑡 𝑆ℎ𝑜𝑤𝑠 𝑎𝑛𝑑 𝑓𝑛𝑓 x3
 
+<img
+SRC="http://dl.glitter-graphics.net/pub/974/974611gaslp2bg2j.gif" /></p>
 🫀𝐼𝑛𝑡𝑒𝑟𝑒𝑠𝑡: 𝐶𝑢𝑡𝑒𝑐𝑜𝑟𝑒, 𝐷𝑟𝑒𝑎𝑚𝑐𝑜𝑟𝑒, 𝑌𝑎𝑏𝑢𝑗𝑖𝑛𝑐𝑜𝑟𝑒, 𝑊𝑒𝑖𝑟𝑑𝑐𝑜𝑟𝑒, 𝐵𝑟𝑒𝑎𝑘𝑐𝑜𝑟𝑒, 𝑓𝑟𝑢𝑡𝑖𝑔𝑒𝑟 𝑎𝑒𝑟𝑜, 𝐾𝑖𝑑𝑐𝑜𝑟𝑒 𝑎𝑛𝑑 𝐿𝑜𝑢𝑑𝑐𝑜𝑟𝑒 xD
 
 <img
