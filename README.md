@@ -3,6 +3,8 @@
 src="https://media.tenor.com/cs7Z40PBEHgAAAAM/divider.gif" /></p>
 🎀:𝑝𝑙𝑧 𝑐𝑎𝑙𝑙 𝑚𝑒 𝐶𝑎𝑙𝑣𝑖𝑛!
 
+<img
+SRC="http://dl6.glitter-graphics.net/pub/1207/1207906t5ef8adzuh.gif" /></p>
 🔪𝑖 𝑙𝑣𝑒 𝑘𝑖𝑙𝑙𝑖𝑛𝑔 𝑚𝑦𝑠𝑒𝑙𝑓 ( ꩜ ᯅ ꩜;) 𝑛𝑜, 𝑖𝑚 𝑗𝑢𝑠𝑡 𝑘𝑖𝑑𝑑𝑖𝑛𝑔 >_<! (𝐼𝑚 𝑛𝑜𝑡 𝑠𝑒𝑙𝑓 ℎ𝑎𝑟𝑚)
 
 🦷:𝑀𝑦 𝑎𝑔𝑒 𝑖𝑠 18! 𝐼𝑚 𝑎𝑛 𝑎𝑑𝑢𝑙𝑡 𝑛𝑜𝑤 :)
