@@ -26,6 +26,8 @@ SRC="http://dl.glitter-graphics.net/pub/1639/1639651ak9smf69n0.gif" /></p>
 
 🫀𝐼𝑛𝑡𝑒𝑟𝑒𝑠𝑡: 𝐶𝑢𝑡𝑒𝑐𝑜𝑟𝑒, 𝐷𝑟𝑒𝑎𝑚𝑐𝑜𝑟𝑒, 𝑌𝑎𝑏𝑢𝑗𝑖𝑛𝑐𝑜𝑟𝑒, 𝑊𝑒𝑖𝑟𝑑𝑐𝑜𝑟𝑒, 𝐵𝑟𝑒𝑎𝑘𝑐𝑜𝑟𝑒, 𝑓𝑟𝑢𝑡𝑖𝑔𝑒𝑟 𝑎𝑒𝑟𝑜, 𝐾𝑖𝑑𝑐𝑜𝑟𝑒 𝑎𝑛𝑑 𝐿𝑜𝑢𝑑𝑐𝑜𝑟𝑒 xD
 
+<img
+SRC="https://c10.patreonusercontent.com/4/patreon-media/p/post/107942200/846e0f98c4f9463d9968e69a4aab93ae/eyJ3Ijo2MjB9/1.png?token-time=1721952000&token-hash=W82eygyQ2j7j6YxMaSPm7xh-3ysQZFQqG0dnFmYOY5Q%3D" /></p>
 🥩:𝑀𝑦 𝑓𝑎𝑣 𝑠𝑜𝑛𝑔 𝑖𝑠 𝑌𝑎𝑏𝑢𝑗𝑖𝑛:D! 𝐼𝑚 𝑎𝑙𝑤𝑎𝑦𝑠 𝑙𝑖𝑠𝑡𝑒𝑛𝑖𝑛𝑔 𝑡𝑜 𝑌𝑎𝑏𝑢𝑗𝑖𝑛 𝑒𝑣𝑒𝑟𝑦𝑑𝑎𝑦 𝑤ℎ𝑒𝑛 𝐼 𝑤𝑎𝑠 𝑏𝑜𝑟𝑒𝑑/𝑠𝑎𝑑 𝑎𝑛𝑑 𝑢𝑝𝑠𝑒𝑡(｡>_<｡)
 
 <img
