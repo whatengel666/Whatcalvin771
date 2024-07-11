@@ -53,10 +53,12 @@ src="http://dl5.glitter-graphics.net/pub/675/675125pwwt7fof2r.gif" /></p><img
 src="http://dl.glitter-graphics.net/pub/695/695091w7zqwwdn9n.gif" /></p><img
 src="http://dl5.glitter-graphics.net/pub/820/820095yoeyni3ype.gif" /></p><img
 src="https://adriansblinkiecollection.neocities.org/b28.gif" /></p><img
-src="http://dl3.glitter-graphics.net/pub/862/862823aiyn9xdpp9.gif" /></p>
-<img
+src="http://dl3.glitter-graphics.net/pub/862/862823aiyn9xdpp9.gif" /></p><img
 src="http://dl4.glitter-graphics.net/pub/450/450294krqs1zdmyt.gif" /></p><img
-src="http://dl3.glitter-graphics.net/pub/180/180793o6w0geqbip.gif" /></p><img
+src="http://dl3.glitter-graphics.net/pub/180/180793o6w0geqbip.gif" /></p>
+<img
+SRC="https://adriansblinkiecollection.neocities.org/stamps/a2.png" /></p>
+<img
 src="https://adriansblinkiecollection.neocities.org/stamps/a40.jpg" /></p><img
 src="https://adriansblinkiecollection.neocities.org/stamps/d40.jpg" /></p><img
 src="http://dl2.glitter-graphics.net/pub/910/910942fgljh9uppc.gif" /></p>
