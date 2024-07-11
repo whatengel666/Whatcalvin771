@@ -18,6 +18,8 @@ SRC="http://dl6.glitter-graphics.net/pub/2844/2844476rus91qqtua.gif" /></p>
 SRC="http://dl3.glitter-graphics.net/pub/672/672663fcmohh86is.gif" /></p>
 🌸:𝐹𝑟𝑒𝑒 𝑐+ℎ 𝑖𝑓 𝑢 𝑤𝑎𝑛𝑡 𝑖 𝑑𝑜𝑛'𝑡 𝑚𝑖𝑛𝑑 XP
 
+<img
+SRC="http://dl2.glitter-graphics.net/pub/677/677092ykivovsu3o.gif" /></p>
 🩹:𝑝𝑙𝑧 𝑑𝑜 𝑛𝑜𝑡 𝑐𝑜𝑝𝑦𝑖𝑛𝑔 𝑚𝑦 𝑝𝑜𝑛𝑦 𝑦𝑎 𝑘𝑛𝑜𝑤 𝑖𝑡'𝑠 𝑠𝑜 ℎ𝑎𝑟𝑑 𝑡𝑜 𝑚𝑎𝑘𝑒 𝑎 𝑝𝑜𝑛𝑦 3:<
 
 <img
