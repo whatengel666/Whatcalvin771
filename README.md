@@ -32,22 +32,22 @@ SRC="http://dl.glitter-graphics.net/pub/1639/1639651ak9smf69n0.gif" /></p>
 𝐷𝑁𝐼.1: + . 𝑈𝑔𝑙𝑦 𝑟𝑎𝑛𝑑𝑜𝑚 𝑐𝑎𝑡/𝑑𝑜𝑔/𝑏𝑢𝑛𝑛𝑦 𝑤𝑖𝑡ℎ 𝑡ℎ𝑒 𝑠𝑚𝑎𝑙𝑙 𝑒𝑦𝑒𝑠 (𝐼 ℎ𝑎𝑡𝑒 𝑡ℎ𝑎𝑡 𝑎𝑛𝑛𝑜𝑦𝑖𝑛𝑔 𝑡ℎ𝑖𝑛𝑔 𝑝𝑙𝑧 𝑙𝑒𝑎𝑣𝑒 𝑚𝑒 𝑎𝑙𝑜𝑛𝑒) . +
 
 <img
-SRC="http://dl3.glitter-graphics.net/pub/1133/1133713rllt5crn2p.gif" /></p>
+SRC="http://dl5.glitter-graphics.net/pub/1853/1853515ivmvg6py7t.gif" /></p>
 
 𝐷𝑁𝐼.2: + . 𝑇𝑜𝑥𝑖𝑐/𝑟𝑢𝑑𝑒 𝑝𝑙𝑎𝑦𝑒𝑟𝑠 . +
 
 <img
-SRC="http://dl3.glitter-graphics.net/pub/1133/1133713rllt5crn2p.gif" /></p>
+SRC="http://dl5.glitter-graphics.net/pub/1853/1853515ivmvg6py7t.gif" /></p>
 
 𝐷𝑁𝐼.3: + . 𝑃𝑟𝑜𝑠ℎ𝑖𝑝𝑝𝑒𝑟𝑠, 𝑛𝑠𝑓𝑤 . +
 
 <img
-SRC="http://dl3.glitter-graphics.net/pub/1133/1133713rllt5crn2p.gif" /></p>
+SRC="http://dl5.glitter-graphics.net/pub/1853/1853515ivmvg6py7t.gif" /></p>
 
 𝐷𝑁𝐼.4: + . 𝑀𝑎𝑟𝑗, 𝑁𝑎𝑦𝑎, 𝐶𝑙𝑒𝑜, 𝑉𝑜𝑖𝑑, 𝐼𝑠𝑎(𝐿𝑜𝑠𝑒𝑟), 𝐾𝑦𝑙𝑒 𝑙𝑜𝑣𝑒𝑟 𝑎𝑛𝑑 𝐺𝑟𝑎𝑣𝑦 (𝑇ℎ𝑜𝑠𝑒 𝑝𝑒𝑜𝑝𝑙𝑒𝑠 𝑔𝑜 𝑓𝑢𝑐𝑘 𝑢𝑟𝑠𝑒𝑙𝑓🖕) . +
 
 <img
-SRC="http://dl3.glitter-graphics.net/pub/1133/1133713rllt5crn2p.gif" /></p>
+SRC="http://dl5.glitter-graphics.net/pub/1853/1853515ivmvg6py7t.gif" /></p>
 
 𝐷𝑁𝐼.5: + . 𝐶𝑎𝑙𝑣𝑖𝑛 (𝑏𝑒𝑐𝑎𝑢𝑠𝑒 ℎ𝑒'𝑠 𝑎 𝑚𝑖𝑛𝑜𝑟 𝑎𝑛𝑑 ℎ𝑒'𝑠 𝑑𝑟𝑎𝑤𝑖𝑛𝑔 𝑁𝑆𝐹𝑊 𝑡𝑜𝑜.) . +
 
