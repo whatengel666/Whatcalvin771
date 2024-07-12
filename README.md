@@ -7,7 +7,7 @@ SRC="http://dl6.glitter-graphics.net/pub/1207/1207906t5ef8adzuh.gif" /></p>
 🔪𝑖 𝑙𝑣𝑒 𝑘𝑖𝑙𝑙𝑖𝑛𝑔 𝑚𝑦𝑠𝑒𝑙𝑓 ( ꩜ ᯅ ꩜;) 𝑛𝑜, 𝑖𝑚 𝑗𝑢𝑠𝑡 𝑘𝑖𝑑𝑑𝑖𝑛𝑔 >_<! (𝐼𝑚 𝑛𝑜𝑡 𝑠𝑒𝑙𝑓 ℎ𝑎𝑟𝑚)
 
 <img
-SRC="http://dl6.glitter-graphics.net/pub/1558/1558136ts4h2tox3b.gif" /></p>
+SRC="http://dl3.glitter-graphics.net/pub/2388/2388593ujquae4bgu.gif" /></p>
 🦷:𝑀𝑦 𝑎𝑔𝑒 𝑖𝑠 18! 𝐼𝑚 𝑎𝑛 𝑎𝑑𝑢𝑙𝑡 :)
 
 🎂: 19𝑡ℎ/𝐷𝑒𝑐𝑒𝑚𝑏𝑒𝑟 𝑖𝑠 𝑚𝑦 𝑏𝑖𝑟𝑡ℎ𝑑𝑎𝑦 ^_^
