@@ -43,6 +43,8 @@ SRC="http://dl8.glitter-graphics.net/pub/1188/1188638ea245ms2x6.gif" /></p>
 
 👁𝑀𝑦 𝑐𝑙𝑜𝑠𝑒 𝑓𝑟𝑖𝑒𝑛𝑑𝑠:𝐶𝑟𝑎𝑖𝑔, 𝐶𝑎𝑡𝑏𝑜𝑜𝑘 𝑎𝑛𝑑 3𝑀𝐼𝐿𝑌𝑥4𝑠𝑦𝑎!!𝑂_𝑜  <3
 
+✨𝑀𝑦 𝑏𝑜𝑦𝑓𝑟𝑖𝑒𝑛𝑑: 𝐾𝑒𝑙𝑣𝑖𝑛 (𝑝𝑙𝑧 𝑐𝑜𝑚𝑒 𝑏𝑎𝑐𝑘 𝐼 𝑚𝑖𝑠𝑠 𝑢 𝑠𝑚💔)
+
 <img
 SRC="http://dl5.glitter-graphics.net/pub/2811/2811705t29dee9imk.gif" /></p>
 💤 𝐷𝑛𝑖: 
