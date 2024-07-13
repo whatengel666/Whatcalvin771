@@ -69,6 +69,11 @@ SRC="http://dl5.glitter-graphics.net/pub/1853/1853515ivmvg6py7t.gif" /></p>
 𝐷𝑁𝐼.5: + . 𝐶𝑎𝑙𝑣𝑖𝑛 (𝑏𝑒𝑐𝑎𝑢𝑠𝑒 ℎ𝑒'𝑠 𝑎 𝑚𝑖𝑛𝑜𝑟 𝑎𝑛𝑑 ℎ𝑒'𝑠 𝑑𝑟𝑎𝑤𝑖𝑛𝑔 𝑁𝑆𝐹𝑊 𝑡𝑜𝑜.) . +
 
 <img
+SRC="http://dl5.glitter-graphics.net/pub/1853/1853515ivmvg6py7t.gif" /></p>
+
+𝐷𝑁𝐼.6: + . 𝑇𝑊𝐸𝑁𝑁𝑌 𝑆𝐻𝐼𝑃𝑃𝐸𝑅𝑆 (𝐸𝑊𝑊, 𝐼 𝐻𝐴𝑇𝐸 𝑇𝐻𝐴𝑇 𝑆𝐻𝐼𝑃)
+
+<img
 src="http://dl2.glitter-graphics.net/pub/252/252682in41fsxg03.gif" /></p>
 <img
 src="http://dl6.glitter-graphics.net/pub/2496/2496756zadxqueczl.gif"/></p><img
