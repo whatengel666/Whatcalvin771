@@ -71,7 +71,17 @@ SRC="http://dl5.glitter-graphics.net/pub/1853/1853515ivmvg6py7t.gif" /></p>
 <img
 SRC="http://dl5.glitter-graphics.net/pub/1853/1853515ivmvg6py7t.gif" /></p>
 
-𝐷𝑁𝐼.6: + . 𝑇𝑊𝐸𝑁𝑁𝑌 𝑆𝐻𝐼𝑃𝑃𝐸𝑅𝑆 (𝐸𝑊𝑊, 𝐼 𝐻𝐴𝑇𝐸 𝑇𝐻𝐴𝑇 𝑆𝐻𝐼𝑃)
+𝐷𝑁𝐼.6: + . 𝑇𝑊𝐸𝑁𝑁𝑌 𝑆𝐻𝐼𝑃𝑃𝐸𝑅𝑆 (𝐸𝑊𝑊, 𝐼 𝐻𝐴𝑇𝐸 𝑇𝐻𝐴𝑇 𝑆𝐻𝐼𝑃 𝐹𝑈𝐶𝐾 𝑂𝑈𝑇 𝑂𝐹 𝑀𝑌 𝐹𝐴𝐶𝐸) (𝐴𝑁𝐷 𝐼 𝐷𝑂𝑁'𝑇 𝐴𝐷𝐷 𝑇𝐻𝐴𝑇 𝑆𝑇𝑈𝑃𝐼𝐷 𝑇𝑊𝐸𝑁𝑁𝑌 𝑆𝐻𝐼𝑃𝑃𝐸𝑅 𝐴𝑆 𝐹𝑅𝐼𝐸𝑁𝐷 𝐺𝑂 𝐹𝑈𝐶𝐾 𝑌𝑂𝑈𝑅𝑆𝐸𝐿𝐹)
+
+<img
+SRC="http://dl5.glitter-graphics.net/pub/1853/1853515ivmvg6py7t.gif" /></p>
+
+𝐷𝑁𝐼.7: + . 𝐶𝑅𝐸𝑁𝑁𝑌 𝐻𝐴𝑇𝐸𝑅 (𝐹𝑈𝐶𝐾 𝑌𝑂𝑈)
+
+<img
+SRC="http://dl5.glitter-graphics.net/pub/1853/1853515ivmvg6py7t.gif" /></p>
+
+𝐷𝑁𝐼.8: + . 𝑃𝐸𝑂𝑃𝐿𝐸 𝑊𝐻𝑂 𝑀𝐴𝐾𝐸𝑆 𝐹𝑈𝑁 𝑂𝐹 𝑀𝐸
 
 <img
 src="http://dl2.glitter-graphics.net/pub/252/252682in41fsxg03.gif" /></p>
