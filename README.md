@@ -9,7 +9,7 @@ SRC="http://dl6.glitter-graphics.net/pub/1207/1207906t5ef8adzuh.gif" /></p>
 
 <img
 SRC="http://dl3.glitter-graphics.net/pub/2388/2388593ujquae4bgu.gif" /></p>
-🦷:𝑀𝑦 𝑎𝑔𝑒 𝑖𝑠 18! 𝐼𝑚 𝑎𝑛 𝑎𝑑𝑢𝑙𝑡 :)
+🦷:𝑀𝑦 𝑎𝑔𝑒 𝑖𝑠 ##
 
 🎂: 19𝑡ℎ/𝐷𝑒𝑐𝑒𝑚𝑏𝑒𝑟 𝑖𝑠 𝑚𝑦 𝑏𝑖𝑟𝑡ℎ𝑑𝑎𝑦 ^_^
 
