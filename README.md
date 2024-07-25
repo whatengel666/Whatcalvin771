@@ -1,7 +1,7 @@
  + . ɪ ʀᴇᴀʟʟʏ ʟɪᴋᴇ ᴜʀ ᴄᴏᴏʟ ᴘᴏɴʏ >_<‼️ . +
 <img
 src="http://dl5.glitter-graphics.net/pub/184/184475y66x8elc3k.gif" /></p>
-🎀:𝑝𝑙𝑧 𝑐𝑎𝑙𝑙 𝑚𝑒 𝐶𝑎𝑙𝑣𝑖𝑛/𝐶4𝑙𝑣1𝑛!
+🎀:𝑝𝑙𝑧 𝑐𝑎𝑙𝑙 𝑚𝑒 *****
 
 <img
 SRC="http://dl6.glitter-graphics.net/pub/1207/1207906t5ef8adzuh.gif" /></p>
