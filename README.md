@@ -1,7 +1,6 @@
 <img
 src="http://dl5.glitter-graphics.net/pub/184/184475y66x8elc3k.gif" /></p>
-🎀:𝑝𝑙𝑧 𝑐𝑎𝑙𝑙 𝑚𝑒 *****
-
+🎀:𝑝𝑙𝑧 𝑐𝑎𝑙𝑙 𝑚𝑒 𝐸𝑛𝑔𝑒𝑙
 <img
 SRC="http://dl6.glitter-graphics.net/pub/1207/1207906t5ef8adzuh.gif" /></p>
 🔪𝑖 𝑙𝑣𝑒 𝑘𝑖𝑙𝑙𝑖𝑛𝑔 𝑚𝑦𝑠𝑒𝑙𝑓 ( ꩜ ᯅ ꩜;) 𝑛𝑜, 𝑖𝑚 𝑗𝑢𝑠𝑡 𝑘𝑖𝑑𝑑𝑖𝑛𝑔 >_<! (𝐼𝑚 𝑛𝑜𝑡 𝑠𝑒𝑙𝑓 ℎ𝑎𝑟𝑚)
@@ -40,8 +39,8 @@ SRC="https://c10.patreonusercontent.com/4/patreon-media/p/post/107942200/846e0f9
 <img
 SRC="http://dl8.glitter-graphics.net/pub/1188/1188638ea245ms2x6.gif" /></p>
 
-👁𝑀𝑦 𝑐𝑙𝑜𝑠𝑒 𝑓𝑟𝑖𝑒𝑛𝑑𝑠:𝐶𝑟𝑎𝑖𝑔, 𝐽𝑖𝑛/𝑇𝑒𝑑, 𝐶𝑎𝑡𝑏𝑜𝑜𝑘 𝑎𝑛𝑑 3𝑀𝐼𝐿𝑌𝑥4𝑠𝑦𝑎!!𝑂_𝑜  <3
-
+👁𝑀𝑦 𝑐𝑙𝑜𝑠𝑒 𝑓𝑟𝑖𝑒𝑛𝑑𝑠:𝐶𝑟𝑎𝑖𝑔, 𝐽𝑖𝑛/𝑇𝑒𝑑, 𝑇𝑤𝑒𝑒𝑘𝑠𝑖𝑘 𝑎𝑛𝑑 𝐶𝑎𝑡𝑏𝑜𝑜𝑘
+🫂 𝑀𝑌 𝐵𝐸𝑆𝑇 𝑆𝐼𝐿𝐿𝑌 𝐶𝑈𝑇𝐸 𝑃𝑂𝑂𝐾𝐼𝐸 𝐹𝑅𝐼𝐸𝑁𝐷 𝐼𝑁 𝑇𝐻𝐸 𝑊𝑂𝑅𝐿𝐷 𝐼𝑆 𝐸𝑀𝐼𝐿𝑌 ^_^‼️
 ✨𝑀𝑦 𝑏𝑜𝑦𝑓𝑟𝑖𝑒𝑛𝑑: 𝐾𝑒𝑙𝑣𝑖𝑛 (𝑝𝑙𝑧 𝑐𝑜𝑚𝑒 𝑏𝑎𝑐𝑘 𝐼 𝑚𝑖𝑠𝑠 𝑢 𝑠𝑚💔 𝑝𝑙𝑧 𝑑𝑜𝑛𝑡 𝑙𝑒𝑎𝑣𝑒 𝑚𝑒 𝑓𝑜𝑟 𝑜𝑡ℎ𝑒𝑟...･ﾟ･(｡>д<｡)･ﾟ･)
 <img
 src="http://dl9.glitter-graphics.net/pub/799/799439jyztig4idl.gif" /></p>
