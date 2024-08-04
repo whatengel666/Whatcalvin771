@@ -39,9 +39,8 @@ SRC="https://c10.patreonusercontent.com/4/patreon-media/p/post/107942200/846e0f9
 <img
 SRC="http://dl8.glitter-graphics.net/pub/1188/1188638ea245ms2x6.gif" /></p>
 
-👁𝑀𝑦 𝑐𝑙𝑜𝑠𝑒 𝑓𝑟𝑖𝑒𝑛𝑑𝑠:𝐶𝑟𝑎𝑖𝑔, 𝑇𝑤𝑒𝑒𝑘𝑠𝑖𝑘 𝑎𝑛𝑑 𝐶𝑎𝑡𝑏𝑜𝑜𝑘
+👁𝑀𝑦 𝑐𝑙𝑜𝑠𝑒 𝑓𝑟𝑖𝑒𝑛𝑑𝑠: 𝐶𝑟𝑎𝑖𝑔, 𝐶𝑟𝑎𝑖𝑔𝑠𝑖𝑘, 𝑇𝑤𝑒𝑒𝑘𝑠𝑖𝑘 𝑎𝑛𝑑 𝐶𝑎𝑡𝑏𝑜𝑜𝑘
 
-🫂 𝑀𝑌 𝐵𝐸𝑆𝑇 𝑆𝐼𝐿𝐿𝑌 𝐶𝑈𝑇𝐸 𝑃𝑂𝑂𝐾𝐼𝐸 𝐹𝑅𝐼𝐸𝑁𝐷 𝐼𝑁 𝑇𝐻𝐸 𝑊𝑂𝑅𝐿𝐷 𝐼𝑆 𝐸𝑀𝐼𝐿𝑌 ^_^‼️
 <img
 src="http://dl9.glitter-graphics.net/pub/799/799439jyztig4idl.gif" /></p>
 <img
