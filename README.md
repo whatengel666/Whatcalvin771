@@ -8,6 +8,8 @@ src="https://adriansblinkiecollection.neocities.org/dividers/cautiondivider2.gif
 
 ɢᴇɴᴅᴇʀ: ᴍᴀʟᴇ.... 
 
+ᴘʀᴏɴᴏᴜɴs: ʜᴇ/ᴛʜᴇʏ
+
 ᴀɢᴇ: ???
 
 ʙɪʀᴛʜ: 19/12
@@ -15,3 +17,6 @@ src="https://adriansblinkiecollection.neocities.org/dividers/cautiondivider2.gif
 ғᴀᴠᴏʀɪᴛᴇ: ʙᴇsᴛ ғʀɪᴇɴᴅs.... 
 
 ᴅɪsʟɪᴋᴇs: ғᴀᴋᴇ ғʀɪᴇɴᴅs, ᴛᴡᴇɴɴʏ (sᴘ sʜɪᴘ), ᴘᴇᴏᴘʟᴇ ᴡʜᴏ ᴍᴀᴋᴇs ғᴜɴ, ʜᴀᴛᴇʀ.... 
+
+ᴘʀᴏʙʟᴇᴍ:
+- ʜᴀᴠᴇ depression
