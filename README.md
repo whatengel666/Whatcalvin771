@@ -1,6 +1,6 @@
 <img
 src="https://adriansblinkiecollection.neocities.org/dividers/cautiondivider2.gif" /></p>
-<h9> ᴡʜᴀᴛᴄᴀʟᴠɪɴ771's ɪɴғᴏʀᴍᴀᴛɪᴏɴ: <h9>
+<h9> - ᴡʜᴀᴛᴄᴀʟᴠɪɴ771's ɪɴғᴏʀᴍᴀᴛɪᴏɴ: <h9>
 ┈┈┈┈┈┈┈┈┈┈┈┈┈┈┈┈┈
 
 
